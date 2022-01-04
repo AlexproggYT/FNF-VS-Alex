@@ -1,2 +1,2 @@
-# FNF-VS-Alex
-Just a weird mod ima try to make :D
+# yes... alex's psych engine v0.1
+so yeah... have fun i guess...
