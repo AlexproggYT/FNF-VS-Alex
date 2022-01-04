@@ -1,2 +1,3 @@
-# yes... alex's psych engine v0.1
-so yeah... have fun i guess...
+# Friday Night Funkin VS Alex :/
+
+yeah weird
